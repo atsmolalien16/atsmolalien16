@@ -16,4 +16,8 @@
 <div></div>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <p>‧── 🍊 fandoms :3 🍊 ──‧</p>
-<p>➽-❥ Seventeen</p>
+<p>➽─❥ Seventeen</p>
+<p>➽─❥ Ateez</p>
+<p>➽─❥ Stray Kids</p>
+<p>‧── 🍊 other :> 🍊 ──‧</p>
+<p>➽─❥ tbd</p>
