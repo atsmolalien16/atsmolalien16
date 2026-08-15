@@ -9,22 +9,22 @@
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <div id="introduction" align="center">
 <p>‧───── 🍓 𝕞𝕠𝕠 🍓 ─────‧</p>
-<p>hi!! i'm bun :3. i'm usually afk / offtab, but if my status is "online," "away," or "in menu" feel free to interact! c+h+wti</p>
-<p>i'm usually around the bakery (inside and outside) and the library. you can find me in both safe server and 18+ but less so.</p>
+<p>𝚑𝚒!! 𝚒'𝚖 𝚋𝚞𝚗 :𝟹. 𝚒'𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚊𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋, 𝚋𝚞𝚝 𝚒𝚏 𝚖𝚢 𝚜𝚝𝚊𝚝𝚞𝚜 𝚒𝚜 "𝚘𝚗𝚕𝚒𝚗𝚎," "𝚊𝚠𝚊𝚢," 𝚘𝚛 "𝚒𝚗 𝚖𝚎𝚗𝚞" 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝! 𝚌+𝚑+𝚠𝚝𝚒</p>
+<p>𝚒'𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚊𝚛𝚘𝚞𝚗𝚍 𝚝𝚑𝚎 𝚋𝚊𝚔𝚎𝚛𝚢 (𝚒𝚗𝚜𝚒𝚍𝚎 𝚊𝚗𝚍 𝚘𝚞𝚝𝚜𝚒𝚍𝚎) 𝚊𝚗𝚍 𝚝𝚑𝚎 𝚕𝚒𝚋𝚛𝚊𝚛𝚢. 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚏𝚒𝚗𝚍 𝚖𝚎 𝚒𝚗 𝚋𝚘𝚝𝚑 𝚜𝚊𝚏𝚎 𝚜𝚎𝚛𝚟𝚎𝚛 𝚊𝚗𝚍 𝟷𝟾+ 𝚋𝚞𝚝 𝚕𝚎𝚜𝚜 𝚜𝚘.</p>
 <p></p>
 
 <div></div>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <p>‧───── 🍊 𝕗𝕒𝕟𝕕𝕠𝕞𝕤 :3 🍊 ─────‧</p>
 <ul>
-  <li>➽─❥ Seventeen</li>
-  <li>✧ Ateez</li>
-  <li>✧ Stray Kids</li>
+  <li>➽─❥ 𝚂𝚎𝚟𝚎𝚗𝚝𝚎𝚎𝚗</li>
+  <li>✧ 𝙰𝚝𝚎𝚎𝚣</li>
+  <li>✧ 𝚂𝚝𝚛𝚊𝚢 𝙺𝚒𝚍𝚜</li>
 </ul>
 <p></p>
 
 <p>‧───── 🍊 𝕠𝕥𝕙𝕖𝕣 :> 🍊 ─────‧</p>
-<p>✧ tbd</p>
+<p>✧ 𝚝𝚋𝚍</p>
 <p></p>
 
 
