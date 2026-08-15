@@ -16,13 +16,16 @@
 <div></div>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <p>‧───── 🍊 fandoms :3 🍊 ─────‧</p>
+<u1>
   <li>➽─❥ Seventeen</li>
   <li>✧ Ateez</li>
   <li>✧ Stray Kids</li>
+</u1>
 <p></p>
 
 <p>‧───── 🍊 other :> 🍊 ─────‧</p>
 <p>✧ tbd</p>
 <p></p>
+
 
 <sub>ty maimai for helping me with this ദ്ദി╥ ᴗ ╥)</sub>
