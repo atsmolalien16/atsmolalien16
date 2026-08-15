@@ -1,2 +1,9 @@
 <div>
 <h2>moo 🐄</h2>
+<p></p>
+<p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
+<p></p>
+<div id="images" align="center">
+  <img src="seungkwan/bboodo.png" width=90%/>
+<div>
+  
