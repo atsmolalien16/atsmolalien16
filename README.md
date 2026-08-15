@@ -24,4 +24,4 @@
 <p>‧───── 🍊 other :> 🍊 ─────‧</p>
 <p>✧ tbd</p>
 <p></p>
-###### ty maimai for helping me with this ദ്ദി╥ ᴗ ╥)
+<sub>ty maimai for helping me with this ദ്ദി╥ ᴗ ╥)</sub>
