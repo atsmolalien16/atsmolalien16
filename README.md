@@ -6,6 +6,7 @@
 <p></p>
 <div id="images" align="center">
   <img width="1900" height="750" alt="bboodo" src="https://github.com/user-attachments/assets/a2ed612e-7a80-49da-802a-cadf7f8fd6ee" />
+<p></p>
 <div align="center">
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <div id="introduction" align="center">
