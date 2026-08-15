@@ -8,6 +8,7 @@
 <div align="center">
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <div id="introduction" align="center">
+<p>‧── 🍓 moo 🍓 ──‧</p>
 <p>hi!! i'm bun :3. i'm usually afk/offtab, but if my status is "online," "away," or "in menu" feel free to interact! C+H+WTI</p>
 <p>i'm usually around the bakery (inside and outside) and the library. you can find me in both safe server and 18+ but less so.</p>
 <p></p>
