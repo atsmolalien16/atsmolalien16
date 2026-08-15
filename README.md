@@ -1,6 +1,7 @@
 <div>
 <h2>moo 🐄🍓</h2>
 <p></p>
+<div align="center">
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <p></p>
 <div id="images" align="center">
