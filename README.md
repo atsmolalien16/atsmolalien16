@@ -4,6 +4,6 @@
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <p></p>
 <div id="images" align="center">
-  <img src="desktop/bboodo.jpg" width=90%/>
+  <img width="1900" height="750" alt="bboodo" src="https://github.com/user-attachments/assets/a2ed612e-7a80-49da-802a-cadf7f8fd6ee" />
 <div>
   
