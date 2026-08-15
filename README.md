@@ -17,5 +17,5 @@
 
 <div></div>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
-<div align="left">
-<p>meow</p>
+<p>‧──fandoms :3──‧</p>
+
