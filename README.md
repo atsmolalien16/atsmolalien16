@@ -17,5 +17,5 @@
 
 <div></div>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
-</div>
+<div align="left">
 <p>meow</p>
