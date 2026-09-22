@@ -9,7 +9,8 @@
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <br>
 <p>‧─────── ❣️ 𝕣𝕖𝕒𝕕 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖 ❣️ ───────‧</p>
-[hihihi read here!](https://atsmolalien16.straw.page)
+[Text the reader clicks on](https://example.com)
+
 <br>
 <div></div>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
