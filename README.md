@@ -10,7 +10,7 @@
 <br>
 <p>‧─────── ❣️ 𝕣𝕖𝕒𝕕 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖 ❣️ ───────‧</p>
 
-Check out my portfolio [here](https://yourwebsite.com).
+hihihi read it [here](https://atsmolalien.straw.page).
 <br>
 <div></div>
 <p></p>
