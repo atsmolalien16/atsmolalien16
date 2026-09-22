@@ -9,10 +9,11 @@
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <br>
 <p>‧─────── ❣️ 𝕣𝕖𝕒𝕕 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖 ❣️ ───────‧</p>
-[Text the reader clicks on](https://example.com)
 
+Check out my portfolio [here](https://yourwebsite.com).
 <br>
 <div></div>
+<p></p>
 <p>• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •</p>
 <br>
 <div id="introduction" align="center">
